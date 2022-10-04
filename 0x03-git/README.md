@@ -1,1 +1,1 @@
-Dani
+Dani wa Kanyada
